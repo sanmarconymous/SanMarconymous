@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-El conocimiento es libre. Somos SanMarconymous. Somos Legión. No perdonamos.
+Free knowledge
 
 - 🎥 Instagram: https://instagram.com/SanMarconymous/
 - 📺 Youtube Channel: https://youtube.com/SanMarconymous/
